@@ -1,0 +1,1 @@
+© 2023, BlockMyKeyboard - Tous droits réservés
